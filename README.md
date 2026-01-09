@@ -26,7 +26,7 @@ Benefits include:
 
 ---
 
-## Key Features of Versitron 1-Channel Video Installation Kits
+## Key Features of 1-Channel Video Installation Kits
 
 - supports single-channel CCTV video, audio, and control  
 - works over fiber optic and twisted-pair cable  
@@ -93,7 +93,7 @@ Yes – Versitron video installation kits are available to buy online, with deal
 
 ---
 
-## Buy Versitron 1-Channel CCTV & Video Installation Kit
+## Buy 1-Channel CCTV & Video Installation Kit
 
 Purchase a reliable 1-channel CCTV video installation kit online for professional video, audio, and control connectivity over fiber or twisted pair. Shop now for commercial pricing, bulk deals, and online options.
 
